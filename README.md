@@ -1,2 +1,2 @@
 ### Note
->    you can visit https://lawenyuan.github.io to learn more about me!
+>    you can visit https://lawenyuan.github.io or yywblog.cn to learn more about me!
